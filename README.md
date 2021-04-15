@@ -2,6 +2,8 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking for an internship ..
+
+
 An honors student with a record of academic and extracurricular success with Extensive leadership experience.
 Adept at working across departments, with faculty, administrators, and students.
 
